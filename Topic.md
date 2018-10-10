@@ -1,1 +1,2 @@
-* International Coffee Business
+# International Coffee Business
+My topic for the blog is to write from the point of view of a businessman who is running a international coffee business. As a result, many of the writings will compare different styles of coffee in various countries, appreciation of different styles, and how the drink is intergrated into culture. I'm planning on doing a segment about Guatemala, the USA, and maybe switzerland for starters. I'll also touch on which countries have influenced the coffee of other countries and how that has played out.
