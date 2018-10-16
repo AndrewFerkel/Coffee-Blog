@@ -1,5 +1,5 @@
 # Capitalism and Coffee
 America's understanding of coffee is deeply influenced by the demand for imported beans and the perception of coffee as a specialty drink.
 
-## Perception
-In the United States, *good* coffee is coffee that costs five dollars. Although, it is painful to admit, many buyers if offered the same drink for two dollars and for five dollars would assume that the more expensive one was better. This is because of a perception that the quality of coffee is directly linked to the price and process. These two ideas are linked since the more complicated the process, the higher the price will be. 
+## Price and Place 
+In the United States, *good* coffee is coffee that costs five dollars. Although, it is painful to admit, many buyers if offered the same drink for two dollars and for five dollars would assume that the more expensive one was better. This is because of a perception that the quality of coffee is directly linked to the price and place. These two ideas are linked since the more complicated the process, the higher the price will be. In addition, coffee shops flourish because people pay expensive prices for not only the drink, but the atmosphere of the institution. They appreciate the opportunity to see their cofee made in front of them, to witness the process firsthand in a room that bears the smell of coffee. Coffee shops in America are simply a location for work to be done, where coffee *happens* to be offered. Whether it is the price or proce
