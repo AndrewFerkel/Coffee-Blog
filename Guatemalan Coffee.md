@@ -1,0 +1,1 @@
+Similar to the United States of America, coffee is an intergral part of the economy of Guatemala. Although, rather than being a service industry, it is primarily a manufacturing industry in the country below the border. 
