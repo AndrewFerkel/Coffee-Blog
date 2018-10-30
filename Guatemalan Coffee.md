@@ -14,3 +14,7 @@ If ever someone manages to travel there, they should expect a very solid, middle
  
 As the capital of Guatemala, Guatemala City maintains a large amount of coffee shops, though they are seldom chains like Starbucks. Below I added a list of the top ten recommended by Trip Advisor. Many of these I have had the opportunity to personally try, and they are well worth the stop.
 
+* Saint Honore
+* San Martin
+
+
