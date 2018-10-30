@@ -16,5 +16,13 @@ As the capital of Guatemala, Guatemala City maintains a large amount of coffee s
 
 * Saint Honore
 * San Martin
+* Cafe Paradigma
+* El Injerto Cafe
+* Roque Rosito Cafe Gourmet
+* Le Cafe (the most creative of the names...)
+* Cafe Despierto
+* Cafe Casa (aptly named since it translates to coffee house)
+* Cafe Divino Guatemala
+* Cafe Barista
 
 
