@@ -6,8 +6,11 @@ Farmers in Antigua, the most-common of the seven coffee-producing regions, use t
 
 # How does it taste?
 
-Aside from the history and science of the drink in Guatemala, there are certain, flavoral trends that visitors come to expect when they order a cup of the steaming beverage. Guatemalan coffee has a sweet, medium-roast flavor accompanied with nutty accents.
+Aside from the history and science of the drink in Guatemala, there are certain, flavoral trends that visitors come to expect when they order a cup of the steaming beverage. Guatemalan coffee has a sweet, medium-roast flavor accompanied with nutty accents. With mediocre acidity, Guatemalan coffee is widely appreciated my many differently-opionated people. In some of the other areas besides Antigua, the coffee becomes even weaker but is still very good. 
 
+If ever someone manages to travel there, they should expect a very solid, middle-of-the-ground coffee. 
 
-
+# Guatemala City
+ 
+As the capital of Guatemala, Guatemala City maintains a large amount of coffee shops, though they are seldom chains like Starbucks. Below I added a list of the top ten recommended by Trip Advisor. Many of these I have had the opportunity to personally try, and they are well worth the stop.
 
