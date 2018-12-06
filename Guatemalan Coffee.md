@@ -24,5 +24,5 @@ As the capital of Guatemala, Guatemala City maintains a large amount of coffee s
 * Cafe Casa (aptly named since it translates to coffee house)
 * Cafe Divino Guatemala
 * Cafe Barista
-
+ 
 
